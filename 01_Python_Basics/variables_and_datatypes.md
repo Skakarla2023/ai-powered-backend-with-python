@@ -129,3 +129,18 @@ Python is  fantastic
 ```
 
 <img width="1247" height="592" alt="image" src="https://github.com/user-attachments/assets/710f7913-8425-4822-a0c4-55bca36ac842" />
+
+<img width="987" height="777" alt="image" src="https://github.com/user-attachments/assets/a536fc6e-6855-456e-900e-4ef1803a5948" />
+
+<img width="1271" height="250" alt="image" src="https://github.com/user-attachments/assets/38d02416-4571-4487-b518-05841893a639" />
+
+<img width="1283" height="384" alt="image" src="https://github.com/user-attachments/assets/df189edb-4653-409f-acf4-3e47deae0b20" />
+
+<img width="1299" height="237" alt="image" src="https://github.com/user-attachments/assets/2663b195-887c-4ef6-916c-412bf41e780a" />
+
+<img width="1287" height="332" alt="image" src="https://github.com/user-attachments/assets/bdf161f0-d1f1-4af7-9848-20111d37932c" />
+
+<img width="1268" height="428" alt="image" src="https://github.com/user-attachments/assets/b6f3a7cc-9ca7-4fb2-be64-690abf6355be" />
+
+
+<img width="1333" height="218" alt="image" src="https://github.com/user-attachments/assets/0511c416-1e0f-47e0-8591-7f069597e3c7" />
